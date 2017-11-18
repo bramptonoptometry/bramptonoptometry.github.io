@@ -1,4 +1,4 @@
-# Dr. Agatha Cheung &<br/>Dr. Krupa Chothani<br/>Optometrists
+# Dr. Agatha Cheung & <br/>Dr. Krupa Chothani <br/>Optometrists
 
 ## Contact Us (New Location)
 (905)799-1724  

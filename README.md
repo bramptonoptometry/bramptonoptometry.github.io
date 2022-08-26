@@ -1,34 +1,28 @@
-## Dr. Agatha Cheung & <br/>Dr. Krupa Chothani <br/>Optometrists
+## Dr. Agatha Cheung <br/>Optometrist
 
 ___
 
-## IMPORTANT NOTICE RE: COVID-19
+## Office Closure
+Dear Patients,
 
->Due to the current situation with the coronavirus, the College of Optometrists of Ontario have recommended all offices to close temporarily to avoid the spread of this disease. As a result, we are cancelling and re-scheduling all appointments until further notice. Our office will close as of Mar. 18th until Mar. 29th as per their guidelines. These dates may change based on public health recommendations from the government.
->
->Should you require urgent eye care, please contact your local emergency services or email us at [bramptonoptometry@gmail.com](mailto:bramptonoptometry@gmail.com) and we will try to get back to you as soon as possible. Please follow self-isolation guidelines if you have recently travelled or are currently experiencing flu-like symptoms.
->
->Your health and well-being are very important to us and we hope to see you soon.
+It is with a heavy heart that I am writing to inform you I will no longer be practising in Brampton. Due to lease issues and family obligations, I have decided to focus my work in my Markham location. After working in Brampton for the past 13 years, I have gotten to know a lot of my patients and their families well. I will miss these interactions dearly. 
 
-* [College of Optometrists of Ontario - Change to Optometry Care During COVID-19](https://www.collegeoptom.on.ca/resources/news/urgent-care-only-covid19/)
-* [Public Health Ontario - COVID-19 Public Resources](https://www.publichealthontario.ca/en/diseases-and-conditions/infectious-diseases/respiratory-diseases/novel-coronavirus/public-resources)
-* [Government of Canada - Coronavirus disease (COVID-19)](https://www.canada.ca/en/public-health/services/diseases/coronavirus-disease-covid-19.html)
+Rest assured, all your patient records will still be accessible. I have found a suitable home for them at Sunshine Modern Eye Care Optometric Clinic, where my associate who has been filling in for my maternity leave, Dr. Shayna Tailor, also works. Their staff will be happy to assist you during this transition. They offer direct billing for most insurance plans and are open 7 days a week. Please call them at (905) 451- 3937 should you wish to book any appointments or inquire about when your next eye exam is due starting in September.
 
+Please email bramptonoptometry@gmail.com before the end of this year should you have any questions or concerns. We will try to get back to you in a timely manner. The 125 Queen St. location will remain open until August 30th, 2022.
+
+It has been a great pleasure working with you and I wish you all the best.
+
+Sincerely,
+
+Agatha Cheung, O.D. 
+
+![Sunshine Modern](Sunshine_Modern.jpg)
 ___
 
-## Contact Us (New Location)
+## Contact
+bramptonoptometry@gmail.com  
 (905)799-1724  
 125 Queen Street East  
 Unit 200  
 Brampton, Ontario
-
-## Hours
-Monday 11am - 3pm  
-Tuesday 10am - 3pm  
-Thursday 11am - 7pm  
-Friday 1:30pm - 7pm
-
-## About
-We have moved to our new location starting Jan 2017  
-and are no longer at the Bramalea City Centre.  
-Please call or visit us at the new location.
